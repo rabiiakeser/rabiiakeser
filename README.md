@@ -4,7 +4,7 @@
 
 ###  I'm Rabia. :blush:
 
-## Computer Engineering Student 3/4 , i love coding
+## Computer Engineering Student , i love coding 💖
 
 <font color="pink">Coffee :coffee: is how I keep up with `< code />` </font>
 
